@@ -1,1 +1,1 @@
-Live Link: https://only1tarunno.github.io/pptv6/# Purluga
+Live Link: https://zellyo-digital0.github.io/Purluga/
